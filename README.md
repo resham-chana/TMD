@@ -10,6 +10,7 @@
 - I’m an INFJ
 - I recently got married
 - I am the B in LGBTQ+
+- I am vegan
 
 ---
 
@@ -27,11 +28,12 @@
 - I like tracking things like films I watch, how many rows of knitting I have done and books I've read.
 - I’m better 1-1 than in group calls.
 - I love a list (setting tasks in a list format in an email is amazing for me!) and a good amount of direction and clear communication
+- Please talk to me about race, feminism, leicester and bodybuilding.
 
 ---
 
 ### The job and my background
-- I am working on publications relating to SFI, CS and ES. Things like uptake, payements and geographic breakdown. 
+- I am working on publications relating to SFI, CS and ES. Things like uptake, payments and geographic breakdowns. 
 - I am badged GORS and GSG
 - I have a maths degree and a data science master's.
 - I have worked at the Department for Education and the Home Office before coming to Defra in 2022.
