@@ -22,6 +22,7 @@
 
 ### Other bits
 - I like cooking, going to the gym, bouldering, running, swimming and yoga.
+- I like tracking things like films I watch, how many rows of knitting I have done and books I've read.
 - I’m better 1-1 than in group calls.
 - I love a list (setting tasks in a list format in an email is amazing for me!) and a good amount of direction and clear communication
 
