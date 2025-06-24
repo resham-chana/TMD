@@ -8,6 +8,8 @@
 - I live in Leicester
 - I’m [Punjabi](https://en.wikipedia.org/wiki/Punjabis)
 - I’m an INFJ
+- I recently got married
+- I am the B in LGBTQ+
 
 ---
 
