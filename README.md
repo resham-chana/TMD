@@ -18,7 +18,7 @@
 - I like teams messages over emails
 - If you’re setting up a meeting/call with me, please let me know the context or if it will be positive/negative/neutral and the context.
 - Gentle written feedback is preferred
-    - And feedback that is **Balanced/ObjectIve/Specific/Timely**
+    - And feedback that is [**Balanced/ObjectIve/Specific/Timely**](https://www.revolutionlearning.co.uk/article/the-boost-feedback-model/)
 - When you give me a task please email me with a breakdown in a list format.
 
 ---
@@ -28,7 +28,7 @@
 - I like tracking things like films I watch, how many rows of knitting I have done and books I've read.
 - I’m better 1-1 than in group calls.
 - I love a list (setting tasks in a list format in an email is amazing for me!) and a good amount of direction and clear communication
-- Please talk to me about race, feminism, leicester and bodybuilding.
+- Please talk to me about race, feminism, leicester, bodybuilding, film and maths.
 
 ---
 
