@@ -1,6 +1,6 @@
 # About me:
 
-### Resham Chana
+### Resham Chana (She/They)
 - Resh is fine
 - My full name is pronounced rAE-shum or [ਰੇਸ਼ਮ](https://www.discoversikhism.com/punjabi/punjabi_gurmukhi_alphabet.html)
 - Statistician (HEO)
