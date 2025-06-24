@@ -2,8 +2,8 @@
 
 ### Resham Chana
 - Resh is fine
-- My full name is pronounced rAIR-shUm
-- Data Scientist (HEO)
+- My full name is pronounced rAE-shum or [ਰੇਸ਼ਮ](https://www.discoversikhism.com/punjabi/punjabi_gurmukhi_alphabet.html)
+- Statistician (HEO)
 - Preferred hours: 9.30–5.30
 - I live in Leicester
 - I’m [Punjabi](https://en.wikipedia.org/wiki/Punjabis)
